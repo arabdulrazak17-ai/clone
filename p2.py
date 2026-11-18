@@ -1,0 +1,1 @@
+"My name is AbduRazak. I am 22 years old."
